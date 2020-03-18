@@ -1,4 +1,4 @@
-# ***Zenzero***
+# ***Liquore allo Zenzero***
 
 * 40g radice di zenzero
 * 200ml di alcool
