@@ -1,8 +1,8 @@
 # ***Liquore alla Cannella***
 
-* 400ml di alcol
-* 300g di zucchero
-* 300ml di acqua
+* 500ml di alcol
+* 400g di zucchero
+* 700ml di acqua
 * 8 stecche di cannella
 * mezzo baccello di vaniglia
 
@@ -14,4 +14,4 @@ Versate l’alcool alla cannella nello sciroppo, unite gli altri 100 ml di alcoo
 
 Versate il liquore alla cannella nella bottiglia facendolo passare dal colino e aiutandovi con l’imbuto.
 
-[Link](https://blog.giallozafferano.it/neltegamesulfuoco/liquore-alla-cannella/)
+[Link](https://www.agrodolce.it/ricette/liquore-alla-cannella/)
