@@ -13,7 +13,7 @@
    - 180g di farina
    - 1 bustina di vanillina
 
-Iniiate pelando le mele e privandole del torsolo, tagliatele poi a cubetti di medie dimensioni. Fate sciogliere il burro in padella e aggiungete le mele a pezzetti, unite anche il succo di limone, lo zucchero semolato e 1 cucchiaino di cannella. Fate saltare le mele in padella per un minuto circa.
+Iniziate pelando le mele e privandole del torsolo, tagliatele poi a cubetti di medie dimensioni. Fate sciogliere il burro in padella e aggiungete le mele a pezzetti, unite anche il succo di limone, lo zucchero semolato e 1 cucchiaino di cannella. Fate saltare le mele in padella per un minuto circa.
 
 Preparate ora la pasta di ricopertura per il crumble: in una ciotola capiente ponete la farina, la vanillina, lo zucchero di canna e il burro a cubetti. Lavorate gli ingredienti velocemente con la punta delle dita ottenendo un impasto "bricioloso".
 
