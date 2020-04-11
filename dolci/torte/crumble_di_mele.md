@@ -9,7 +9,7 @@
 
 - Pasta crumble:
    - 120g di burro
-   - 120g di zucchero
+   - 120g di zucchero di canna
    - 180g di farina
    - 1 bustina di vanillina
 
