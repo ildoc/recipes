@@ -1,10 +1,10 @@
 # ***Liquore alla Cannella***
 
-* 500ml di alcol
-* 400g di zucchero
-* 700ml di acqua
-* 8 stecche di cannella
-* mezzo baccello di vaniglia
+- 500ml di alcol
+- 400g di zucchero
+- 700ml di acqua
+- 8 stecche di cannella
+- mezzo baccello di vaniglia
 
 Frullate le stecche di cannella e trasferitele in una caraffa. Mettete 300 ml di alcool e il mezzo baccello di vaniglia, mescolate, coprite la caraffa con pellicola e riponete in un  luogo buio e fresco per una settimana.
 

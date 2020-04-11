@@ -1,9 +1,9 @@
 # ***Limoncello***
 
-* 5 Limoni grandi non trattati
-* 600g di zucchero
-* 500ml di alcool
-* 750ml di acqua
+- 5 limoni grandi non trattati
+- 600g di zucchero
+- 500ml di alcool
+- 750ml di acqua
 
 Per realizzare il limoncello lavate i limoni sotto il getto dell’acqua corrente, sfregate la buccia con una spugnetta nuova per eliminare eventuali impurità, quindi asciugate i limoni con un canovaccio. Sbucciate i limoni con un pelapatate, dovrete prelevare solo la scorza gialla e non la parte bianca che risulterebbe amara.							
 

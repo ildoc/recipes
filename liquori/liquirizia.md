@@ -1,9 +1,9 @@
 # ***Liquore alla Liquirizia***
 
-* 500g di zucchero
-* 500ml di acqua
-* 500ml di alcool
-* 100g di polvere di liquirizia
+- 500g di zucchero
+- 500ml di acqua
+- 500ml di alcool
+- 100g di polvere di liquirizia
 
 Per preparare il liquore alla liquirizia iniziate a realizzare lo sciroppo: versate lo zucchero di canna in un tegame, unite l'acqua e portate ad ebollizione, a fiamma moderata. 								
 
